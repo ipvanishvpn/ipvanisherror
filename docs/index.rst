@@ -1,4 +1,4 @@
-How to Log In to IPVanish Login Error: Complete Troubleshooting Guide
+How to FIX to IPVanish Login Error: Complete Troubleshooting Guide
 ======================================================================
 
 .. image:: https://img.shields.io/badge/Fix%20Error-1E90FF?style=for-the-badge&logo=icloud&logoColor=white
